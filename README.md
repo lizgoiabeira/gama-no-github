@@ -1,0 +1,1 @@
+Sou iniciante na área e estou achando incrível as tecnologias e a forma como podemos compartilhar informações. Apesar de parecer complexo, as aulas estão bem didáticas, estou animada para continuar aprendendo!
